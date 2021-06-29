@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vinaykumar887
-- 👀 I’m interested in Programming. 
-- 🌱 I’m currently learning Data Structures, DBMS.
+- 👀 I’m interested in Programming, Web development. 
+- 🌱 I’m currently learning Python, Data Structures, CSS, Javascript.
 - 📫 How to reach me kasala.kasala.vinay@gmail.com 
 
 <!---
