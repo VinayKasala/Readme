@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **kasala.vinay@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1m_x6l379G5ZtjQWLTIqpGlCS3AInN-3h/view?usp=sharing](https://drive.google.com/file/d/1m_x6l379G5ZtjQWLTIqpGlCS3AInN-3h/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1QVs4Sx0fvNO-UARMFkIlsXQJ-B26GVrN/view?usp=sharing](https://drive.google.com/file/d/1m_x6l379G5ZtjQWLTIqpGlCS3AInN-3h/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
